@@ -1,1 +1,3 @@
-# Hello-World
+# Hello-Vikings!!
+
+Full on fight in training, it's the way of vikings.. Every muscle straining, it's the way of the Jomsvikings.. These men aim to shatter, It's the way of vikings.. This is how we battle, It's the way of the Jomsvikings...
